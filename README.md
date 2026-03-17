@@ -1,4 +1,7 @@
-## Hi there 👋
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![](https://komarev.com/ghpvc/?username=loveuntangled&label=hoes&color=ffffff)</p>
+
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">![image](https://i.postimg.cc/L6NXR63D/Untitled1580-20260317170246.png)
+</p>
 
 <!--
 **loveuntangled/loveuntangled** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
